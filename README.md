@@ -1,2 +1,2 @@
 # hello_world
-just another project
+My name is Ce Xi, I love to play basketball
